@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @xGINx
+- 👀 I’m interested in Games/Anime and computers
+- 🌱 I’m currently learning Html/css
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me Gin#3009
